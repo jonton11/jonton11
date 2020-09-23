@@ -1,4 +1,4 @@
-# Jonathan Wong - [@Jwnathan_W](https://twitter.com/Jwnathan_W)
+# [Jonathan Wong](mailto:hello@jonton.dev)
 
 ### Hi there 👋
 
